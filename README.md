@@ -3,4 +3,5 @@ happy day
 happy firday
 
 
-friday is party night not study night 
+friday is party night not study night
+findf my iphone  
